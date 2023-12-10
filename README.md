@@ -1,4 +1,3 @@
-
 ![image](https://github.com/Prashanth292003/Prashanth292003/assets/123961512/96dab876-0f47-4759-b30e-dbbe021d05ba)
 
 <h1 align="center">Hi 👋, I'm Prashanth</h1>
